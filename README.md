@@ -1,0 +1,1 @@
+# contract_gorkunov_o_v
